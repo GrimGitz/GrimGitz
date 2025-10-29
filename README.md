@@ -1,6 +1,7 @@
 ### Hello!!! :3
 Hunter here and Welcome to my github profile!
-WARNING!: please be wary before interacting with me, i like slightly problematic shows like pysco cuties and ZERO DAY. ive been blocked and harassed by people over these so please dont become close with me unless you KNOW i interact with this media. thank you!
+
+-WARNING!: please be wary before interacting with me, i like slightly problematic shows like pysco cuties and ZERO DAY. ive been blocked and harassed by people over these so please dont become close with me unless you KNOW i interact with this media. thank you!
 - you can find my strawpage below. it provides more infomation about me/fandoms and all that jazz but majority of it is ALREADY here so read this if you cant be bothered!
 
 

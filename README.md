@@ -17,8 +17,9 @@ OTHER STUFF!
 - PLEASE INT! if you are in one of these fandoms: homestuck, haunted hotel, amphibia, the owl house, zero day (no i don't romantize school shootings wtf. I LIKE THE FILM FOR ITS ACTING!! i don't support the characters actions.), regretevator (dni 'retroslop' poob kins/fiction kins yall PMO so bad UNLESS you are close w me), wings of fire, warrior cats, southpark, helluva boss, tadc, httyd, spooky month, lackadaisy, One wheat mark, stranger things and a LOT more but i lowk forgot most of them..
 - DON'T BE AFRIAD TO INT WITH ME! i need more pony town friends! D:
 
-![🕊️ Swiss - hs^2](https://github.com/user-attachments/assets/b2217a3b-1168-4db3-9911-ce1aa5445b75)
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/7d0b2b0c-e43b-436b-b6b2-94e2d6103adf" />
 
 
-  Have a lovely day/night!
+
+
 

@@ -3,12 +3,10 @@
 Welcome to my github profile!
 - you can find my strawpage below!
 ![nyan-cat-pictures-1y550aojs77u58wk](https://github.com/user-attachments/assets/b9f6a2c3-3707-4cb9-b55d-895e6d01831b)
-## STUFF!
-- [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31u3stiobril2k26hbegbae2ej6m&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile)
+
 ## STRAWPAGE(S)!! 
 - https://yaaayquestions.straw.page 
 - https://cielsstrawpaaagee.straw.page
-<img width="267" height="267" alt="image" src="https://github.com/user-attachments/assets/837b07b0-468d-4b42-8ad0-7f7c8795e7d3" />
 <br>](https://x.com/StuckInSburb)
 
 ## OTHER STUFF!

@@ -1,3 +1,7 @@
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/7d0b2b0c-e43b-436b-b6b2-94e2d6103adf" />
+
+
+
 ### Hello!!! :3
 Hunter here and Welcome to my github profile!
 
@@ -23,7 +27,6 @@ OTHER STUFF!
 
 - i am VERY verbal and talkitive when i get close with people so lmk if you would rather me be quiet!!
 
-<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/7d0b2b0c-e43b-436b-b6b2-94e2d6103adf" />
 
 
 

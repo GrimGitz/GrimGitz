@@ -1,7 +1,7 @@
 ### Hello!!! :3
 Hunter here and Welcome to my github profile!
 
-i love following people's githubs..if i follow you its because i think ur cool! :3
+i love following people's githubs..if i follow you its because i think ur cool! (I FOLLOW BACK! :D)
 
 - you can find my strawpage below. it provides more infomation about me/fandoms and all that jazz but majority of it is ALREADY here so read this if you cant be bothered!
 
@@ -13,7 +13,6 @@ STRAWPAGE(S)!!
 - https://cielsstrawpaaagee.straw.page
 <br>(https://x.com/StuckInSburb)
 
--WARNING!: please be wary before interacting with me, i like slightly problematic shows like pysco cuties and ZERO DAY. ive been blocked and harassed by people over these so please dont become close with me unless you KNOW i interact with this media. thank you!
 
 OTHER STUFF!
 - i have NO dni. i interact with everyone don't be shy!! BUT i do block freely!

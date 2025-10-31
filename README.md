@@ -1,4 +1,4 @@
-![download (5)](https://github.com/user-attachments/assets/640bca5f-db17-4953-9fee-7765fc39bdca)
+![!# 💀☆](https://github.com/user-attachments/assets/6ed45d74-0d21-4b5a-8f0f-e57bde9ef214)
 ═════════════════════════════════════════════════════════
 ### HI HI HI!!! 
 welcome to my gh!!!
@@ -34,7 +34,7 @@ OTHER STUFF!
 
   
 
-![download (6)](https://github.com/user-attachments/assets/df924a45-9a52-488e-8b35-7affe73654f5)
+![johndave _ new banner](https://github.com/user-attachments/assets/b5e196f0-e867-4b9f-9e13-40df87c22a5a)
 
 
 

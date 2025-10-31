@@ -35,8 +35,7 @@ OTHER STUFF!
   
 
 
-![7eb80ee7314c228dcf00dc7871d21aa3](https://github.com/user-attachments/assets/438a6245-22d9-4e5e-8244-9d3e8c6586c8)
-
+![91b1da6e74011939ebe91ea76cc72e3b](https://github.com/user-attachments/assets/28a56c9d-5996-4dbb-b416-f246c6c809d7)
 
 
 

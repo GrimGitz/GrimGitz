@@ -1,8 +1,8 @@
 ![Screenshot_17-10-2025_103014_beyondcanon com](https://github.com/user-attachments/assets/5334afdc-9ab3-48a1-996f-3b269a4e862a)
 
 ═════════════════════════════════════════════════════════
-### Hello!!! 
-welcome to my gh! 
+### HI HI HI!!! 
+welcome to my gh!!!
 
 i LOVE following people's githubs..if i follow you its because i think ur cool! (I FOLLOW BACK! :D)
 
@@ -19,15 +19,16 @@ STRAWPAGE(S)!! (and twitter but i am not active 99% of the time on there..i just
 
 
 OTHER STUFF!
-- i have NO dni. i interact with everyone don't be shy!! BUT i do block freely!
+- i have NO dni!!
+- thin ice though: extremely hyper religious people, people under 12,homophobic/transphobic people, racists
 
- - i am NOT religious and i don't...really like super religious people. so you're on thin ice with me if your one of the extremely hyper religious people :(
- 
 - PLEASE INT! if you are in one of these fandoms: homestuck, haunted hotel, amphibia, the owl house, zero day (no i don't romantize school shootings wtf. I LIKE THE FILM FOR ITS ACTING!! i don't support the characters actions.), regretevator (dni 'retroslop' poob kins/fiction kins yall PMO so bad UNLESS you are close w me), wings of fire, warrior cats, southpark, helluva boss, tadc, httyd, spooky month, lackadaisy, One wheat mark, stranger things and a LOT more but i lowk forgot most of them..
 
 - DON'T BE AFRIAD TO INT WITH ME! i need more pony town friends! D:
 
-- i am VERY verbal and talkitive when i get close with people so lmk if you would rather me be quiet!!
+- i am VERY verbal and talkitive when i get close with people !! but sometimes my english is LIMITED. expect spelling errors/mistakes when im typing very fast...i may take awhile to type things! sorry!
+
+-                                                                       *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
 
 
 

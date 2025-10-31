@@ -1,7 +1,7 @@
 ![Screenshot_17-10-2025_103014_beyondcanon com](https://github.com/user-attachments/assets/5334afdc-9ab3-48a1-996f-3b269a4e862a)
 
-══════════════════════════════════════════════════════════════════════════════
-### Hello!!! :3
+═════════════════════════════════════════════════════════
+### Hello!!! 
 welcome to my gh! 
 
 i LOVE following people's githubs..if i follow you its because i think ur cool! (I FOLLOW BACK! :D)

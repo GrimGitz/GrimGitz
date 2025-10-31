@@ -1,7 +1,9 @@
-![30bc2b8eec7fcb3fdcd79f3d30059885](https://github.com/user-attachments/assets/9027a58d-e007-4571-90c6-b23f4e2480a0)
+![twiddle dee and twiddle fag](https://github.com/user-attachments/assets/5935cbd3-fb41-493f-bcf8-6d44f273dbb8)
 ═════════════════════════════════════════════════════════
 ### HI HI HI!!! 
 welcome to my gh!!!
+
+you can call me hunter/ciel !! 
 
 i LOVE following people's githubs..if i follow you its because i think ur cool! (I FOLLOW BACK! :D)
 
@@ -35,7 +37,7 @@ OTHER STUFF!
   
 
 
-![9255db21d8d5d6008226475dde51fc37](https://github.com/user-attachments/assets/062109e3-2787-4804-9e04-8690b06e909d)
+![298f43de19c8ae58403e141f21e5482b](https://github.com/user-attachments/assets/ee9c2650-dbb3-489c-a496-f62dba69b88e)
 
 
 

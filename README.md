@@ -6,8 +6,7 @@ welcome to my gh!!!
 
 i LOVE following people's githubs..if i follow you its because i think ur cool! (I FOLLOW BACK! :D)
 
-- i am 80% of the time starring at my laptop screen on pony town and the other 20% either offtab or away from my keyboard..so w2i at all times or i wont see your messages bc im way to lazy to backread.
-
+- i am 80% of the time starring at my laptop screen on pony town and the other 20% either offtab or away from my keyboard..so w2i at all times or i wont see your messages bc im way to lazy to backread mssgs
 
 - you can find my strawpage below. it provides more infomation about me/fandoms and other things and all that jazz but majority of it is ALREADY here so read this if you cant be bothered!
 

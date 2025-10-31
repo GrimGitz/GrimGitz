@@ -6,6 +6,9 @@ welcome to my gh!!!
 
 i LOVE following people's githubs..if i follow you its because i think ur cool! (I FOLLOW BACK! :D)
 
+80% of the time starring at my laptop screen on pony town and the other 20% either offtab or away from my keyboard! 
+
+
 - you can find my strawpage below. it provides more infomation about me/fandoms and other things and all that jazz but majority of it is ALREADY here so read this if you cant be bothered!
 
 
@@ -28,7 +31,9 @@ OTHER STUFF!
 
 - i am VERY verbal and talkitive when i get close with people !! but sometimes my english is LIMITED. expect spelling errors/mistakes when im typing very fast...i may take awhile to type things! sorry!
 
--                                                                       *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
+- C+H is FULLY allowed! but m=be mindful when i have dniuf in my name i probably don't want to socialise with people idk! (ik i spelt that wrong i can't be botherd fixing it-)
+
+  
 
 
 

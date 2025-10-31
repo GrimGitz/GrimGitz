@@ -34,7 +34,8 @@ OTHER STUFF!
 
   
 
-![johndave _ new banner](https://github.com/user-attachments/assets/b5e196f0-e867-4b9f-9e13-40df87c22a5a)
+<img width="1200" height="1324" alt="image" src="https://github.com/user-attachments/assets/2162d7a0-a704-466c-b887-e4a8f4221cd2" />
+
 
 
 

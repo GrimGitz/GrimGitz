@@ -1,4 +1,4 @@
-![twiddle dee and twiddle fag](https://github.com/user-attachments/assets/5935cbd3-fb41-493f-bcf8-6d44f273dbb8)
+![eb54b608c238c97bc9c15a360b4efeb8](https://github.com/user-attachments/assets/88e35da9-4201-4802-b9d8-993ae69725ad)
 ═════════════════════════════════════════════════════════
 ### HI HI HI!!! 
 welcome to my gh!!!

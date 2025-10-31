@@ -32,7 +32,7 @@ OTHER STUFF!
 
 - i am VERY verbal and talkitive when i get close with people !! but sometimes my english is LIMITED. expect spelling errors/mistakes when im typing very fast...i may take awhile to type things! sorry!
 
-- C+H is FULLY allowed! but m=be mindful when i have dniuf in my name i probably don't want to socialise with people idk! (ik i spelt that wrong i can't be botherd fixing it-)
+- C+H is FULLY allowed! but be mindful when i have dniuf in my name i probably don't want to socialise with people idk! (ik i spelt that wrong i can't be botherd fixing it-)
 
   
 

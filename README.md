@@ -1,5 +1,4 @@
-![Nepeta Leijon banner](https://github.com/user-attachments/assets/034943e0-6b15-4923-9992-613d9e5d387f)
-
+![my bed🇳🇴🇳🇴🇳🇴](https://github.com/user-attachments/assets/1a9c23f6-bd9e-405a-949d-087105f7413a)
 ═════════════════════════════════════════════════════════
 ### HI HI HI!!! 
 welcome to my gh!!!

@@ -34,7 +34,7 @@ OTHER STUFF!
 
   
 
-![gamzee makara spacehey stamp _oD](https://github.com/user-attachments/assets/48c5d3d2-9cec-42dc-a1f9-ac79628dba90)
+![download (6)](https://github.com/user-attachments/assets/df924a45-9a52-488e-8b35-7affe73654f5)
 
 
 

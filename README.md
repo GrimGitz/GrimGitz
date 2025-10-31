@@ -25,7 +25,8 @@ OTHER STUFF!
 - i have NO dni!!
 - thin ice though: extremely hyper religious people, people under 12,homophobic/transphobic people, racists
 
-- PLEASE INT! if you are in one of these fandoms: homestuck, haunted hotel, amphibia, the owl house, zero day (no i don't romantize school shootings wtf. I LIKE THE FILM FOR ITS ACTING!! i don't support the characters actions.), regretevator (dni 'retroslop' poob kins/fiction kins yall PMO so bad UNLESS you are close w me), wings of fire, warrior cats, southpark, helluva boss, tadc, httyd, spooky month, lackadaisy, One wheat mark, stranger things and a LOT more but i lowk forgot most of them..
+- PLEASE INT! if you are in one of these fandoms: homestuck, haunted hotel, amphibia, the owl house, zero day (no i don't romanticize school shootings wtf. I LIKE THE FILM FOR ITS ACTING!! i don't support the characters actions.), regretevator (dni 'retroslop' poob kins/fiction kins yall PMO so bad UNLESS you are close w me), wings of fire, warrior cats, southpark, helluva boss, inside job, tadc, httyd, spooky month, lackadaisy, One wheat mark, stranger things and a LOT more but i lowk forgot most of them..
+
 
 - DON'T BE AFRIAD TO INT WITH ME! i need more pony town friends! D:
 

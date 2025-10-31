@@ -11,7 +11,7 @@ i LOVE following people's githubs..if i follow you its because i think ur cool! 
 
   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31u3stiobril2k26hbegbae2ej6m&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile) ![pony-town-cal , drawing offtab-boop-sit-padded-4x](https://github.com/user-attachments/assets/6aa86793-5b18-4831-838a-21d842787746)
 
-STRAWPAGE(S)!! 
+STRAWPAGE(S)!! (and twitter but i am not active 99% of the time on there..i just follow furry artists :cry:
 - https://yaaayquestions.straw.page 
 - https://cielsstrawpaaagee.straw.page
 <br>(https://x.com/StuckInSburb)

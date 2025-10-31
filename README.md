@@ -1,4 +1,4 @@
-![Screenshot_17-10-2025_103014_beyondcanon com](https://github.com/user-attachments/assets/5334afdc-9ab3-48a1-996f-3b269a4e862a)
+![Nepeta Leijon banner](https://github.com/user-attachments/assets/034943e0-6b15-4923-9992-613d9e5d387f)
 
 ═════════════════════════════════════════════════════════
 ### HI HI HI!!! 

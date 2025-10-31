@@ -35,8 +35,7 @@ OTHER STUFF!
   
 
 
-![download (7)](https://github.com/user-attachments/assets/f9c0bcc9-ff43-4b4d-8e5e-59b74743c4d7)
-
+![Caca](https://github.com/user-attachments/assets/508b827d-2ff3-4ada-8b5e-1a811b8f6eb9)
 
 
 

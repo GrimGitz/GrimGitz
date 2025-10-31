@@ -1,4 +1,4 @@
-![!# 💀☆](https://github.com/user-attachments/assets/6ed45d74-0d21-4b5a-8f0f-e57bde9ef214)
+![Nepeta Leijon banner](https://github.com/user-attachments/assets/6ce3a6eb-9142-4835-a023-c9af73f7e2cb)
 ═════════════════════════════════════════════════════════
 ### HI HI HI!!! 
 welcome to my gh!!!
@@ -34,7 +34,7 @@ OTHER STUFF!
 
   
 
-<img width="1200" height="1324" alt="image" src="https://github.com/user-attachments/assets/2162d7a0-a704-466c-b887-e4a8f4221cd2" />
+
 
 
 

@@ -1,4 +1,4 @@
-![my bed🇳🇴🇳🇴🇳🇴](https://github.com/user-attachments/assets/1a9c23f6-bd9e-405a-949d-087105f7413a)
+![download (4)](https://github.com/user-attachments/assets/a3ece4c1-6e1d-432e-8bcf-9f17adcf31d2)
 ═════════════════════════════════════════════════════════
 ### HI HI HI!!! 
 welcome to my gh!!!

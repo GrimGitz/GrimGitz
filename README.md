@@ -3,7 +3,9 @@
 ### HI HI HI!!! 
 welcome to my gh!!!
 
-you can call me hunter/ciel/caliborn !! i am a caliborn fictkin!!
+you can call me hunter/ciel/caliborn 
+
+i am a caliborn/mituna fictkin !!
 
 i LOVE following people's githubs..if i follow you its because i think ur cool! (I FOLLOW BACK! :D)
 

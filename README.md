@@ -19,6 +19,7 @@ STRAWPAGE(S)!! (and twitter but i am not active 99% of the time on there..i just
 - https://cielsstrawpaaagee.straw.page
 <br>(https://x.com/StuckInSburb)
 
+![a0cac44f8401c77565ed853fc3bc1d4f](https://github.com/user-attachments/assets/246b6e8c-fe10-427f-8cb8-b8646266e259)
 
 
 OTHER STUFF!

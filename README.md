@@ -3,7 +3,9 @@
 ### HI HI HI!!! 
 welcome to my gh!!!
 
-you can call me hunter/ciel/caliborn 
+you can call me hunter/ciel/caliborn ...hunter is my real name tho! ciel is a nickname given by one of my friends.
+
+caliborn is just bc he's literally me (fictkin! :D)
 
 i LOVE following people's githubs..if i follow you its because i think ur cool! (I FOLLOW BACK! :D)
 
@@ -35,7 +37,7 @@ OTHER STUFF!
 
 - i am VERY verbal and talkitive when i get close with people !! but sometimes my english is LIMITED. expect spelling errors/mistakes when im typing very fast...i may take awhile to type things! sorry!
 
-- i am a caliborn/mituna fictkin !!
+- i am a caliborn/gamzee/mituna fictkin !!
 
 - C+H is FULLY allowed! but be mindful when i have dniuf in my name i probably don't want to socialise with people idk! (ik i spelt that wrong i can't be botherd fixing it-)
 

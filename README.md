@@ -3,9 +3,8 @@
 ### HI HI HI!!! 
 welcome to my gh!!!
 
-you can call me hunter/ciel/caliborn ...hunter is my real name tho! ciel is a nickname given by one of my friends.
+you can call me hunter1
 
-caliborn is just bc he's literally me (fictkin! :D)
 
 i LOVE following people's githubs..if i follow you its because i think ur cool! (I FOLLOW BACK! :D)
 

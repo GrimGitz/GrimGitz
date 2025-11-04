@@ -3,7 +3,7 @@
 ### HI HI HI!!! 
 welcome to my gh!!!
 
-you can call me hunter1
+you can call me hunter
 
 
 i LOVE following people's githubs..if i follow you its because i think ur cool! (I FOLLOW BACK! :D)
